@@ -35,7 +35,7 @@ Copy code
 
 ---
 
-If you want it **even shorter** or **college-format only**, tell me and I’ll trim it more 👍
+
 
 
 
